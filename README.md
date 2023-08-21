@@ -1,0 +1,1 @@
+# MEMO---Gleason19-minimal-loss-application
